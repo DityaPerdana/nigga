@@ -1,0 +1,2 @@
+# nigga
+fathir skill issue
